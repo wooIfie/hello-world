@@ -1,4 +1,3 @@
 # hello-world
-First repository
-This is for my compsys1 class !
-My new GPU is being deliivered tomorrow so thats cool
+Cyberpunk 2077 is FINALLY coming out on the 10th of next month !
+Getting it for Christmas on PS4 and PC
